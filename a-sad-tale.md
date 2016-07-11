@@ -7,3 +7,5 @@ Ned Stark ate a lollipop and it was good.
 Then a dragon came out of nowhere and burned down everything!
 
 That dragon's name? Albert Einstein.
+
+And he was killed in a bloody battle at the wall... Jon Snow dies too. HAHA!
